@@ -9,7 +9,7 @@
 
 - 📫 How to reach me :- **basisthmishranew@gmail.com**
 
-- 📄 Know about my experiences :- [soon to be updated](soon to be updated)
+- 📄 Know about my experiences :- [soon to be updated]
 
 - ⚡ Fun fact - **"Despite spending my days immersed in code, my greatest joy is actually perfecting sourdough bread from scratch."**
 
